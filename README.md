@@ -7,7 +7,6 @@ Home this helps ya'll
 Link to view the the template: https://introduction-template.deveshprudhivi.repl.co/
 
 My Socials:
-Discord - 𝕯𝖊𝖛𝖊𝖘𝖍#6023
 Email - 7996devesh@gmail.com 
 
 🙂 HOPE THIS HELPS YOU GUYS
