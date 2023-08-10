@@ -8,7 +8,6 @@ Link to view the the template: https://introduction-template.deveshprudhivi.repl
 
 My Socials:
 Discord - 𝕯𝖊𝖛𝖊𝖘𝖍#6023
-Replit - @Devesh Prudhivi
 Email - 7996devesh@gmail.com 
 
 🙂 HOPE THIS HELPS YOU GUYS
